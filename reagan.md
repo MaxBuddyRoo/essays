@@ -1,4 +1,4 @@
-reagan is bad mkay
+haii! ^w^ Wonald Weagan was cwing >w< b-but not in a cool way!! uwa! >w<
 
 ## Bad stuff he did (cringe)
 
