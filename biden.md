@@ -1,4 +1,4 @@
-biden is bad :(
+this outdated as hell 
 
 ## Contents
 
