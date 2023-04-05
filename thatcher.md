@@ -11,4 +11,10 @@ Completely unrelated but when researching I found a Reddit comment saying ["Like
 - [Broke the miners' strike](https://www.marxist.com/britain-lessons-miners-strike-partone050304.htm)
 - [Funded illegal death squads in Ireland](https://www.theguardian.com/commentisfree/2013/apr/09/thatcher-legacy-bitterness-north-ireland)
 - Introduced [Section 28](https://en.wikipedia.org/wiki/Section_28), which would prohibit the "promotion of homosexuality" by local authorities, took until 2003 to be no longer in effect
+- She [tried to block HIV/AIDS public health campaigns](https://www.bbc.com/news/uk-politics-55973726)
 - [Removing free school milk for students 7-11 years old](https://en.wikipedia.org/wiki/Margaret_Thatcher#Milk_Snatcher) (how she got the nickname "Milk Snatcher")
+- [Supporting Pinochet's regime in Chile](https://theconversation.com/thatcher-pinochet-and-the-legacy-of-class-warfare-13342)
+- [Sold billions worth of weapons to Saudi Arabia](https://www.independent.co.uk/news/uk/politics/margaret-thatcher-arms-deal-saudi-arabia-uk-fighter-jets-sale-files-a7205521.html)
+- Fucked over UK [scientific research](https://www.museumsassociation.org/museums-journal/news/2013/04/01052013-assessing-the-thatcher-legacy/#) and [museum](https://www.museumsassociation.org/museums-journal/news/2013/04/01052013-assessing-the-thatcher-legacy/#) funding
+- Helped the [commercialisation of university education](https://www.theguardian.com/education/2013/apr/15/margaret-thatcher-education-legacy-gove)
+- [Tried to abolish the NHS](https://news.sky.com/story/margaret-thatcher-pursued-welfare-plans-despite-public-outcry-10671543)
