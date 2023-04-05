@@ -1,4 +1,5 @@
 [DING DONG THE WICKED BITCH IS DEAD](https://www.youtube.com/watch?v=ILvd5buCEnU)
+
 Completely unrelated but when researching I found a Reddit comment saying ["Like the Tin Man in the Wizard of Oz, she was badly in need of a heart."](https://www.reddit.com/r/Socialism_101/comments/vss47v/comment/if3dixw/?utm_source=reddit&utm_medium=web2x&context=3) and I thought that went so unreasonably hard for a Reddit comment I just felt the need to include it.
 
 - ["There's no alternative to capitalism"](https://en.wikipedia.org/wiki/There_is_no_alternative)
