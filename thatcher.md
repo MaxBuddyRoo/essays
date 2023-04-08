@@ -20,3 +20,4 @@ Also the song "Ding Dong! The witch is dead!" got #5 on the billboards the week 
 - Fucked over UK [scientific research](https://www.museumsassociation.org/museums-journal/news/2013/04/01052013-assessing-the-thatcher-legacy/#) and [museum](https://www.museumsassociation.org/museums-journal/news/2013/04/01052013-assessing-the-thatcher-legacy/#) funding
 - Helped the [commercialisation of university education](https://www.theguardian.com/education/2013/apr/15/margaret-thatcher-education-legacy-gove)
 - [Tried to abolish the NHS](https://news.sky.com/story/margaret-thatcher-pursued-welfare-plans-despite-public-outcry-10671543)
+- [Margaret Thatcher: A Response to PragerU and Niall Ferguson](https://www.youtube.com/watch?v=B-KKGmBdDDQ)
