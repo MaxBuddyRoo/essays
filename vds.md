@@ -11,6 +11,7 @@ Resources regarding VDS (Vaush Derangement Syndrome)
 - [A playlist of all of Vaush's apology/response videos](https://www.youtube.com/playlist?list=PLsPo23PBeUnyMMOypfyKitp261G1mMVUU)
 - [Is VAUSH a LIBERAL? Career-Ending Clip Discovered](https://www.youtube.com/watch?v=PSZmVoNMLXY) Regarding the "Marxism is an extension of liberalism"
 - [Addressing The Tactical Controversy](https://www.youtube.com/watch?v=BVGwuTv9bIw)
+- [Vaush Addresses CANCELATION Threads Being PINNED On ALL Leftist Subreddits](https://www.youtube.com/watch?v=YOHwpX2IPps) Addresses some of the claims on the Vaush Facts megathread that gets reposted
 
 EVS being cringe (many such cases):
 - [The original VaushV post about TronaldoDumpo](https://www.reddit.com/r/VaushV/comments/khfo3s/can_we_have_a_discussion_on_what_tronaldodumpo_is/)
