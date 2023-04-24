@@ -16,6 +16,7 @@ Resources regarding VDS (Vaush Derangement Syndrome)
 - [Comment about the r/EVS "vaush transphobe" masterpost](https://www.reddit.com/r/Enough_VDS_Spam/comments/oipi3q/comment/h4yzw3v/?utm_source=share&utm_medium=web2x&context=3)
 - [Why Vaush isn't an imperialist (short and pre-ukraine)](https://www.reddit.com/r/Enough_VDS_Spam/comments/ohj3ik/i_wrote_a_big_comment_on_why_i_dont_think_vaush/)
 - [Clip compilation of every time Vaush clarifies he wants to pull out of Afghanistan in his YT video on the subject](https://www.reddit.com/r/Enough_VDS_Spam/comments/oqf3ys/i_made_a_clip_compilation_of_every_time_vaush/)
+- [RationalWiki article on Vaush](https://rationalwiki.org/wiki/Vaush)
 
 EVS being cringe (many such cases):
 - [The original VaushV post about TronaldoDumpo](https://www.reddit.com/r/VaushV/comments/khfo3s/can_we_have_a_discussion_on_what_tronaldodumpo_is/)
