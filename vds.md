@@ -13,6 +13,7 @@ Resources regarding VDS (Vaush Derangement Syndrome)
 - [Addressing The Tactical Controversy](https://www.youtube.com/watch?v=BVGwuTv9bIw)
 - [Vaush Addresses CANCELATION Threads Being PINNED On ALL Leftist Subreddits](https://www.youtube.com/watch?v=YOHwpX2IPps) Addresses some of the claims on the Vaush Facts megathread that gets reposted
 - [Debunking BS: Vaush's Alt Account Likes](https://www.reddit.com/r/Enough_VDS_Spam/comments/rt9817/debunking_bs_vaushs_alt_account_likes/) Adressing the claim that "Vaush liked CP on an alt"
+- [Comment about the r/EVS "vaush transphobe" masterpost](https://www.reddit.com/r/Enough_VDS_Spam/comments/oipi3q/comment/h4yzw3v/?utm_source=share&utm_medium=web2x&context=3)
 
 EVS being cringe (many such cases):
 - [The original VaushV post about TronaldoDumpo](https://www.reddit.com/r/VaushV/comments/khfo3s/can_we_have_a_discussion_on_what_tronaldodumpo_is/)
