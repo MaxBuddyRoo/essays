@@ -10,6 +10,7 @@ Resources regarding VDS (Vaush Derangement Syndrome)
 - [Vaush addressing viral clips where he appears to argue for possession of child porn to be legal](https://twitter.com/defnoodles/status/1325650200187170816)
 - [A playlist of all of Vaush's apology/response videos](https://www.youtube.com/playlist?list=PLsPo23PBeUnyMMOypfyKitp261G1mMVUU)
 - [Is VAUSH a LIBERAL? Career-Ending Clip Discovered](https://www.youtube.com/watch?v=PSZmVoNMLXY) Regarding the "Marxism is an extension of liberalism"
+- [Addressing The Tactical Controversy](https://www.youtube.com/watch?v=BVGwuTv9bIw)
 
 EVS being cringe (many such cases):
 - [The original VaushV post about TronaldoDumpo](https://www.reddit.com/r/VaushV/comments/khfo3s/can_we_have_a_discussion_on_what_tronaldodumpo_is/)
