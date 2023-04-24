@@ -14,5 +14,5 @@ Resources regarding VDS (Vaush Derangement Syndrome)
 EVS being cringe (many such cases):
 - [The original VaushV post about TronaldoDumpo](https://www.reddit.com/r/VaushV/comments/khfo3s/can_we_have_a_discussion_on_what_tronaldodumpo_is/)
 - [The SubredditDrama post explaining further](https://www.rareddit.com/r/SubredditDrama/comments/kvh9ie/the_story_of_tronaldodumpo_a_tale_of_a/)
-- [EVS had a massive targeted harassment campaign against a Vaush fan]([https://www.unddit.com/r/EnoughTankieSpam/comments/lpm6fb/documenting_tronaldodumpo_and_renough_vaush_spams/](https://web.archive.org/web/20211127195336/https://www.reveddit.com/v/EnoughTankieSpam/comments/lpm6fb/documenting_tronaldodumpo_and_renough_vaush_spams/))
+- [EVS had a massive targeted harassment campaign against a Vaush fan](https://web.archive.org/web/20211127195336/https://www.reveddit.com/v/EnoughTankieSpam/comments/lpm6fb/documenting_tronaldodumpo_and_renough_vaush_spams/?ps_after=1614008335)
 - [/r/Enough_Vaush_Spam v. /r/TankieJerk & /r/EnoughTankieSpam](https://www.reddit.com/r/SubredditDrama/comments/lilgxd/renough_vaush_spam_v_rtankiejerk/)
