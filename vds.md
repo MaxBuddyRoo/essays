@@ -19,6 +19,7 @@ Resources regarding VDS (Vaush Derangement Syndrome)
 - [RationalWiki article on Vaush](https://rationalwiki.org/wiki/Vaush)
 - [Compilation of Vaush denouncing his older takes on CP, and shitting on complacent liberals](https://www.reddit.com/r/Enough_VDS_Spam/comments/oxp62v/heres_a_great_memecompilation_i_found_of_vaush/)
 - [Reddit comment debunking a lot of the pedo screenshots](https://www.reddit.com/r/Enough_VDS_Spam/comments/opis8a/comment/h65goyh/?utm_source=reddit&utm_medium=web2x&context=3)
+- [r/EnoughVaushSpam has a big critique of Vaush. Most of it is misleading or false rubbish.](https://www.reddit.com/r/VaushV/comments/mib0ij/renoughvaushspam_has_a_big_critique_of_vaush_most/)
 
 EVS being cringe (many such cases):
 - [The original VaushV post about TronaldoDumpo](https://www.reddit.com/r/VaushV/comments/khfo3s/can_we_have_a_discussion_on_what_tronaldodumpo_is/)
