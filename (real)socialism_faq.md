@@ -5,7 +5,7 @@ ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE
 
 <!-- toc -->
 - [Socialism FAQ](#socialism-faq)
-  - [Didn't socialism/communism fail? It works in theory but not in practice.](#didnt-communism-fail-it-works-in-theory-but-not-in-practice)
+  - [Didn't socialism/communism fail? It works in theory but not in practice.](#didnt-socialism/communism-fail-it-works-in-theory-but-not-in-practice)
 
 
 <!-- tocstop -->
