@@ -7,12 +7,12 @@ ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE
 
 
 <!-- toc -->
-  - [Didn't socialism/communism fail? It works in theory but not in practice.](#didnt-socialism-communism-fail-it-works-in-theory-but-not-in-practice)
+  - [Didn't socialism fail? It works in theory but not in practice.](#didnt-socialism-fail-it-works-in-theory-but-not-in-practice)
 
 
 <!-- tocstop -->
 
-## Didn't socialism/communism fail? It works in theory but not in practice.
+## Didn't socialism fail? It works in theory but not in practice.
 
 - [Socialism HAS Worked](https://www.youtube.com/watch?v=zIddCEBCKHQ)
 - [Communism Works](https://docs.google.com/document/d/1wSMbJHwN_Pw54SFKkbeHdSM6VKoi7fGg0XR4RUy2Fio/edit)
