@@ -30,6 +30,7 @@ ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE
 - [Popular graph on "Prisoner Mortality Rate Within Gulags" is misinformation](https://socdoneleft.substack.com/p/popular-graph-on-prisoner-mortality)
 - [99% Literacy and Yet No One Can Read: Diving into a Megapost's Citations](https://www.reddit.com/r/neoliberal/comments/jim8uh/99_literacy_and_yet_no_one_can_read_diving_into_a/)
 - [Stalin Was On The RIGHT & Not A LEFTIST](https://www.youtube.com/watch?v=85VnRMVM0ys)
+- [Noam Chomsky - The Soviet Union vs. Socialism](https://www.youtube.com/watch?v=06-XcAiswY4) (finally, leftism)
 - 
 
 
