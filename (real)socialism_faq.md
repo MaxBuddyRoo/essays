@@ -20,6 +20,11 @@ ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE
 
 - [Socialism HAS Worked](https://www.youtube.com/watch?v=zIddCEBCKHQ)
 - [Communism Works](https://docs.google.com/document/d/1wSMbJHwN_Pw54SFKkbeHdSM6VKoi7fGg0XR4RUy2Fio/edit)
+- [Analysing the Values and Limitations of Cooperative Firms](https://docs.google.com/document/d/1ScS39TWXcPkGOpek4tAfp0rAD5usbwIA05pbqVQdO6g/edit)
+- [Workplace Democracy](https://www.youtube.com/watch?v=yZHYiz60R5Q)
+- [Worker Cooperatives: Expanding Democracy In The Workplace](https://www.youtube.com/watch?v=QG0FhpGdFwc)
+- [Noam Chomsky - Workplace Democracy](https://www.youtube.com/watch?v=A4IcyivWG-g)
+- [Democracy in the Workplace is a NECESSITY](https://www.youtube.com/watch?v=c80sTzXlkPY)
 
 ## On USSR
 
