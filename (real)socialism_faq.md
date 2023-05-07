@@ -49,3 +49,5 @@ ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE
 - 
 
 ## On Isreal/Palestine
+
+- a
