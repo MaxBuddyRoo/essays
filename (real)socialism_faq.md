@@ -59,3 +59,4 @@ ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE
 - [Palestine: a Comprehensive Document for Palestinian Liberation](https://docs.google.com/document/d/1cUnwWkLUNrD5AaTEVmgFwnVXXUDFEVsUv4cF-AcokTQ/edit)
 - [Solidarity for Palestinian Human Rights McMaster’s Guide to Israeli Apartheid Week](https://docs.google.com/document/d/1rw55meTlE2p2eh1nTHvvREGHUITJoW7GuuIkgRuJyck/edit)
 - [Empire Files: How Palestine Became Colonized](https://www.youtube.com/watch?v=BT5L4YU_Fl4)
+- [A 50-Year Occupation: Israel’s Six-Day War Started With a Lie](https://theintercept.com/2017/06/05/a-50-year-occupation-israels-six-day-war-started-with-a-lie/)
