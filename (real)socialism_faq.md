@@ -36,6 +36,7 @@ ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE
 - [Noam Chomsky on Leninism](https://www.youtube.com/watch?v=jxhT9EVj9Kk)
 - [Noam Chomsky - Marxism vs. Leninism](https://www.youtube.com/watch?v=l_jRd59qy0A)
 - [Slavoj Zizek: Lenin Was a Radical Opportunist](https://www.youtube.com/watch?v=uuwBrXJNV3M)
+- [The USSR was a capitalist society](https://web.archive.org/web/20160722004401/https://www.reddit.com/r/leftcommunism/comments/4t5oap/the_ussr_was_a_capitalist_society/)
 
 Debunking USSR apologia:
 - [The Revolution Will Not Be Adequately Sourced. Yes, it's /r/Communism again](https://www.reddit.com/r/badhistory/comments/3lm79y/the_revolution_will_not_be_adequately_sourced_yes/)
