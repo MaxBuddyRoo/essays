@@ -35,6 +35,7 @@ ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE
 - [Noam Chomsky - Lenin, the USSR, and the Predictions of Bakunin](https://www.youtube.com/watch?v=gfdnbMd9BiE)
 - [Noam Chomsky on Leninism](https://www.youtube.com/watch?v=jxhT9EVj9Kk)
 - [Noam Chomsky - Marxism vs. Leninism](https://www.youtube.com/watch?v=l_jRd59qy0A)
+- [Slavoj Zizek: Lenin Was a Radical Opportunist](https://www.youtube.com/watch?v=uuwBrXJNV3M)
 
 Debunking USSR apologia:
 - [The Revolution Will Not Be Adequately Sourced. Yes, it's /r/Communism again](https://www.reddit.com/r/badhistory/comments/3lm79y/the_revolution_will_not_be_adequately_sourced_yes/)
