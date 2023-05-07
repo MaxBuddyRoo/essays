@@ -62,3 +62,4 @@ Debunking USSR apologia:
 - [Solidarity for Palestinian Human Rights McMaster’s Guide to Israeli Apartheid Week](https://docs.google.com/document/d/1rw55meTlE2p2eh1nTHvvREGHUITJoW7GuuIkgRuJyck/edit)
 - [Empire Files: How Palestine Became Colonized](https://www.youtube.com/watch?v=BT5L4YU_Fl4)
 - [A 50-Year Occupation: Israel’s Six-Day War Started With a Lie](https://theintercept.com/2017/06/05/a-50-year-occupation-israels-six-day-war-started-with-a-lie/)
+- [23 out of every 24 conflict deaths have been palestinian](https://www.vox.com/2014/7/14/5898581/chart-israel-palestine-conflict-deaths)
