@@ -12,7 +12,7 @@ ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE
   - [Didn't socialism fail? It works in theory but not in practice.](#didnt-socialism-fail-it-works-in-theory-but-not-in-practice)
   - [On USSR](#on-ussr)
   - [On China](#on-china)
-  - [On Isreal](#on-israel)
+  - [On Israel](#on-israel)
 
 
 <!-- tocstop -->
@@ -48,6 +48,6 @@ ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE
 - [Debunking "Debunking 'debunking every single tankie argument ever'"](https://www.reddit.com/r/neoliberal/comments/oay6gu/debunking_debunking_debunking_every_single_tankie/)
 - 
 
-## On Isreal
+## On Israel
 
 - a
