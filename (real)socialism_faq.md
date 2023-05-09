@@ -49,6 +49,13 @@ Debunking USSR apologia:
 
 ## On China
 
+- [Party State Capitalism in China](https://online.ucpress.edu/currenthistory/article/120/827/207/118341/Party-State-Capitalism-in-China)
+- [Beijing now has more billionaires than any city](https://www.bbc.com/news/business-56671638)
+- [Is China a New Colonial Power?](https://thediplomat.com/2020/11/is-china-a-new-colonial-power/)
+- [Chinese State Capitalism](https://www.csis.org/analysis/chinese-state-capitalism)
+- [No, china is not a “proletarian democracy”](https://docs.google.com/document/d/1hMfTFsWVRgw1RHijF7KDDKfiksUTlsrGdLB064XnIzs/edit)
+
+Debunking China apologia:
 - [Debunking "Debunking 'debunking every single tankie argument ever'"](https://www.reddit.com/r/neoliberal/comments/oay6gu/debunking_debunking_debunking_every_single_tankie/)
 - 
 
