@@ -13,6 +13,7 @@ ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE
   - [On USSR](#on-ussr)
   - [On China](#on-china)
   - [On Israel/Palestine](#on-israelpalestine)
+  - [Other](#other)
 
 
 <!-- tocstop -->
@@ -73,3 +74,6 @@ Debunking China apologia:
 - [A 50-Year Occupation: Israel’s Six-Day War Started With a Lie](https://theintercept.com/2017/06/05/a-50-year-occupation-israels-six-day-war-started-with-a-lie/)
 - [23 out of every 24 conflict deaths have been palestinian](https://www.vox.com/2014/7/14/5898581/chart-israel-palestine-conflict-deaths)
 - [Occupied Palestine Is as Entitled to the World’s Solidarity as Occupied Ukraine](https://jacobin.com/2022/04/palestine-israel-occupation-solidarity-ukraine-russia-al-aqsa-mosque)
+
+## Other
+- [Clarence Thomas](https://www.reddit.com/r/Keep_Track/comments/13cyu8c/the_corruption_of_clarence_thomas_a_history/)
