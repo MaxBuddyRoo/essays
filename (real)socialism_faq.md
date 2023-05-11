@@ -27,6 +27,8 @@ ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE
 - [Worker Cooperatives: Expanding Democracy In The Workplace](https://www.youtube.com/watch?v=QG0FhpGdFwc)
 - [Noam Chomsky - Workplace Democracy](https://www.youtube.com/watch?v=A4IcyivWG-g)
 - [Democracy in the Workplace is a NECESSITY](https://www.youtube.com/watch?v=c80sTzXlkPY)
+- [Is This 'Your City on Socialism' Meme Accurate?](https://www.snopes.com/fact-check/your-city-on-socialism/)
+- [Were the Nazis Socialists?](https://www.snopes.com/news/2017/09/05/were-nazis-socialists/), [2](https://www.reddit.com/r/therewasanattempt/comments/cblf1y/comment/ethf3t8/), [3](https://www.reddit.com/r/ShitLiberalsSay/wiki/index/#wiki_the_nazis_were_socialists.2C_communists_or_leftists), [4](https://www.youtube.com/watch?v=X9ez6w5BUMM)
 
 ## On USSR
 
@@ -55,9 +57,12 @@ Debunking USSR apologia:
 - [Is China a New Colonial Power?](https://thediplomat.com/2020/11/is-china-a-new-colonial-power/)
 - [Chinese State Capitalism](https://www.csis.org/analysis/chinese-state-capitalism)
 - [No, china is not a “proletarian democracy”](https://docs.google.com/document/d/1hMfTFsWVRgw1RHijF7KDDKfiksUTlsrGdLB064XnIzs/edit)
+- [Leftist Source compilation on China stuff, by r/neoliberal of all places](https://old.reddit.com/r/neoliberal/comments/mirzc2/debunking_effortpost_2_xinjiang_camps_denial_a/)
 
 Debunking China apologia:
 - [Debunking "Debunking 'debunking every single tankie argument ever'"](https://www.reddit.com/r/neoliberal/comments/oay6gu/debunking_debunking_debunking_every_single_tankie/)
+- [RationalWiki article on the Uyghur genocide](https://rationalwiki.org/wiki/Uyghur_genocide)
+- [Debunking Effortpost 1 - Xinjiang Camps Denial](https://old.reddit.com/r/neoliberal/comments/l3iuqw/debunking_effortpost_1_xinjiang_camps_denial/), [Part 2](https://np.reddit.com/r/neoliberal/comments/m11xvw/debunking_the_communist_masterpost_on_xinjiang/) [Part 3](https://old.reddit.com/r/neoliberal/comments/m5fq2n/debunking_the_communist_masterpost_on_xinjiang/?context=3)
 - 
 
 ## On Israel/Palestine
