@@ -2,6 +2,7 @@ Resources regarding VDS (Vaush Derangement Syndrome)
 
 - [Does Vaush Want to LEGALIZE CP? Debate with a Viewer](https://www.youtube.com/watch?v=6-Q2NTYM3SM) Responding to claims of him wanting to legalize CP
 - [(Almost) Everything I've Ever Been CANCELLED For](https://www.youtube.com/watch?v=vfvvWw63Yh0) Covers a lot of stuff, from memory Poppy, tactical n word, and CP
+- [A Retrospective on the Sexual Harassment Drama](https://www.reddit.com/r/VaushV/comments/d1x0qx/a_retrospective_on_the_sexual_harassment_drama/), probably best response to any claims regarding Poppy
 - [Is Vaush a CRYPTO-FASCIST!? (Exposed!) (Not Clickbait!!!)](https://www.youtube.com/watch?v=QaD4xqkO0sE) Response to most claims of transphobia
 - [Context for the "The way I see it, the age of consent exists..."](https://imgur.com/a/lUfKdqn), [2](https://twitter.com/Silurker/status/1325732593501835264?s=20)
 - [Context for the "I have yet to hear a convincing argument for why possessing CP is bad" clip](https://twitter.com/beigegoat45/status/1325705005886746624)
