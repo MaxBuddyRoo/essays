@@ -10,6 +10,7 @@ ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE
 
 <!-- toc -->
   - [Didn't socialism/communism fail? It works in theory but not in practice.](#didnt-socialismcommunism-fail-it-works-in-theory-but-not-in-practice)
+  - [On Tankies, broadly](#on-tankies-broadly)
   - [On USSR](#on-ussr)
   - [On China](#on-china)
   - [On Israel/Palestine](#on-israelpalestine)
@@ -29,6 +30,10 @@ ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE
 - [Democracy in the Workplace is a NECESSITY](https://www.youtube.com/watch?v=c80sTzXlkPY)
 - [Is This 'Your City on Socialism' Meme Accurate?](https://www.snopes.com/fact-check/your-city-on-socialism/)
 - [Were the Nazis Socialists?](https://www.snopes.com/news/2017/09/05/were-nazis-socialists/), [2](https://www.reddit.com/r/therewasanattempt/comments/cblf1y/comment/ethf3t8/), [3](https://www.reddit.com/r/ShitLiberalsSay/wiki/index/#wiki_the_nazis_were_socialists.2C_communists_or_leftists), [4](https://www.youtube.com/watch?v=X9ez6w5BUMM)
+
+## On Tankies, broadly
+
+- [Everything you ever wanted to know about tankies, but were afraid to ask](https://libcom.org/article/everything-you-ever-wanted-know-about-tankies-were-afraid-ask)
 
 ## On USSR
 
