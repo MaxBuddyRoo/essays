@@ -73,8 +73,9 @@ Debunking USSR apologia:
 Debunking China apologia:
 - [Debunking "Debunking 'debunking every single tankie argument ever'"](https://www.reddit.com/r/neoliberal/comments/oay6gu/debunking_debunking_debunking_every_single_tankie/)
 - [RationalWiki article on the Uyghur genocide](https://rationalwiki.org/wiki/Uyghur_genocide)
-- [Debunking Effortpost 1 - Xinjiang Camps Denial](https://old.reddit.com/r/neoliberal/comments/l3iuqw/debunking_effortpost_1_xinjiang_camps_denial/), [Part 2](https://old.reddit.com/r/neoliberal/comments/m11xvw/debunking_the_communist_masterpost_on_xinjiang/) [Part 3](https://old.reddit.com/r/neoliberal/comments/m5fq2n/debunking_the_communist_masterpost_on_xinjiang/?context=3)
-- 
+- [Debunking the communist masterpost on Xinjiang](https://www.reddit.com/r/neoliberal/comments/lxjsn2/debunking_the_communist_masterpost_on_xinjiang/), [Part 2](https://old.reddit.com/r/neoliberal/comments/m11xvw/debunking_the_communist_masterpost_on_xinjiang/) [Part 3](https://old.reddit.com/r/neoliberal/comments/m5fq2n/debunking_the_communist_masterpost_on_xinjiang/?context=3)
+- [Debunking Effortpost 1 - Xinjiang Camps Denial](https://old.reddit.com/r/neoliberal/comments/l3iuqw/debunking_effortpost_1_xinjiang_camps_denial/)
+- [Why the Uighur genocide is probably NOT bullshit- Debunking a """masterpost""", yet again.](https://www.reddit.com/r/neoliberal/comments/mm2jg5/why_the_uighur_genocide_is_probably_not_bullshit/)
 
 ## On Israel/Palestine
 
