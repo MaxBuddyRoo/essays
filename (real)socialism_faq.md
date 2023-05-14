@@ -10,6 +10,7 @@ ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE
 
 <!-- toc -->
   - [Didn't socialism/communism fail? It works in theory but not in practice.](#didnt-socialismcommunism-fail-it-works-in-theory-but-not-in-practice)
+  - [On Capitalism](#on-capitalism)
   - [On Tankies, broadly](#on-tankies-broadly)
   - [On USSR](#on-ussr)
   - [On China](#on-china)
@@ -38,6 +39,7 @@ ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE
 ## On Tankies, broadly
 
 - [Everything you ever wanted to know about tankies, but were afraid to ask](https://libcom.org/article/everything-you-ever-wanted-know-about-tankies-were-afraid-ask)
+- [Letter From a Former Tankie](https://www.youtube.com/watch?v=5FcNYFtZhnI)
 
 ## On USSR
 
