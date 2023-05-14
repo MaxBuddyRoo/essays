@@ -31,6 +31,10 @@ ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE
 - [Is This 'Your City on Socialism' Meme Accurate?](https://www.snopes.com/fact-check/your-city-on-socialism/)
 - [Were the Nazis Socialists?](https://www.snopes.com/news/2017/09/05/were-nazis-socialists/), [2](https://www.reddit.com/r/therewasanattempt/comments/cblf1y/comment/ethf3t8/), [3](https://www.reddit.com/r/ShitLiberalsSay/wiki/index/#wiki_the_nazis_were_socialists.2C_communists_or_leftists), [4](https://www.youtube.com/watch?v=X9ez6w5BUMM)
 
+## On Capitalism
+
+- [Libcom - Capitalism: an introduction](https://libcom.org/article/capitalism-introduction)
+
 ## On Tankies, broadly
 
 - [Everything you ever wanted to know about tankies, but were afraid to ask](https://libcom.org/article/everything-you-ever-wanted-know-about-tankies-were-afraid-ask)
