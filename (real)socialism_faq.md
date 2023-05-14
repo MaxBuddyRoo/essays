@@ -68,9 +68,9 @@ Debunking USSR apologia:
 - [Is China a New Colonial Power?](https://thediplomat.com/2020/11/is-china-a-new-colonial-power/)
 - [Chinese State Capitalism](https://www.csis.org/analysis/chinese-state-capitalism)
 - [No, china is not a “proletarian democracy”](https://docs.google.com/document/d/1hMfTFsWVRgw1RHijF7KDDKfiksUTlsrGdLB064XnIzs/edit)
-- [Leftist Source compilation on China stuff, by r/neoliberal of all places](https://old.reddit.com/r/neoliberal/comments/mirzc2/debunking_effortpost_2_xinjiang_camps_denial_a/)
 
 Debunking China apologia:
+- [Leftist Source compilation on Uyghur stuff, by r/neoliberal of all places](https://old.reddit.com/r/neoliberal/comments/mirzc2/debunking_effortpost_2_xinjiang_camps_denial_a/)
 - [Debunking "Debunking 'debunking every single tankie argument ever'"](https://www.reddit.com/r/neoliberal/comments/oay6gu/debunking_debunking_debunking_every_single_tankie/)
 - [RationalWiki article on the Uyghur genocide](https://rationalwiki.org/wiki/Uyghur_genocide)
 - [Debunking the communist masterpost on Xinjiang](https://www.reddit.com/r/neoliberal/comments/lxjsn2/debunking_the_communist_masterpost_on_xinjiang/), [Part 2](https://old.reddit.com/r/neoliberal/comments/m11xvw/debunking_the_communist_masterpost_on_xinjiang/) [Part 3](https://old.reddit.com/r/neoliberal/comments/m5fq2n/debunking_the_communist_masterpost_on_xinjiang/?context=3)
