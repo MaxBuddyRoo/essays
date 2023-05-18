@@ -4,6 +4,7 @@
 
 - [Good article on him, author unknown](http://fs2.american.edu/dfagel/www/Harper's%20Magazine%20THE%20CASE%20AGAINST%20HENRY%20KISSINGER_(former%20Secretary%20of%20State).htm)
 - [His RationalWiki page](https://rationalwiki.org/wiki/Henry_Kissinger#The_ugly)
+- [The Trials Of Henry Kissinger (2002)](https://youtu.be/tIVDZYVDraM)
 - [Involved in prolific illegal wiretapping campaign orchestrated by Nixon](https://www.nytimes.com/1976/03/11/archives/nixon-testifies-kissinger-picked-wiretap-targets-says-he-ordered.html)
 - One of the architects of the [secret bombing campaign in Cambodia](https://en.wikipedia.org/wiki/Operation_Freedom_Deal), which played an important role in bringing the Khmer Rouge to power, who killed [1.5 million to 3 million people](https://cla.umn.edu/chgs/holocaust-genocide-education/resource-guides/cambodia)
 - In accordance with his so-called ["Madman Theory"](https://en.wikipedia.org/wiki/Madman_theory), Kissinger had Nixon send 18 B-52 bomber planes armed with nuclear warheads to the eastern Soviet border as part of [Operation "Giant Lance"](https://en.wikipedia.org/wiki/Operation_Giant_Lance)
@@ -14,3 +15,4 @@
 - Said that [“Depopulation should be the highest priority of U.S. foreign policy towards the Third World.”](https://silencednomore.com/kissinger-eugenics-depopulation/)
 - [Kissinger gave the military junta in neighboring Argentina the "green light" for their own clandestine repression against leftwing guerrillas and other dissidents, thousands of whom were kept in more than 400 secret concentration camps before they were executed.](https://www.thenation.com/article/archive/how-much-did-the-us-know-about-the-kidnapping-torture-and-murder-of-over-20000-people-in-argentina/) This would lead to the [Dirty War](https://en.wikipedia.org/wiki/Dirty_War), which would lead to death of 30,000 people.
 - [Kissinger's involvement in Operation Condor](https://en.wikipedia.org/wiki/Operation_Condor#Role_of_Henry_Kissinger) (60,000 deaths)
+- Maintained economic and military aid to Pakistan as it indiscriminately massacred over a million civilians during the Bangladesh Liberation War.
