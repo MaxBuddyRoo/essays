@@ -1,4 +1,4 @@
-> "[How far up your ass does this guy's dick have to be before you realize he's fucking you, man? People are just, "I like him. I don’t know what it is. He looks good on TV, he brought back patriotism. Goddamn it, he's a good American. Hold it, something's slapping my ass. Oh, my God, he's fucking us!"](https://subslikescript.com/movie/Bill_Hicks_Sane_Man-287337)"
+> ["How far up your ass does this guy's dick have to be before you realize he's fucking you, man? People are just, "I like him. I don’t know what it is. He looks good on TV, he brought back patriotism. Goddamn it, he's a good American. Hold it, something's slapping my ass. Oh, my God, he's fucking us!"](https://subslikescript.com/movie/Bill_Hicks_Sane_Man-287337)
 
 ## Bad stuff he did (cringe)
 
