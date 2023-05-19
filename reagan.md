@@ -14,6 +14,7 @@ haii! ^w^ Wonald Weagan was cwing vwv b-but not in a cool way!! uwa! >w<
 - [Poverty rate rose under Reagan](https://www.shmoop.com/reagan-era/statistics.html)
 - [Used his role as president to fire a striking labor union, which played a very significant role in the decline of union membership](https://en.wikipedia.org/wiki/Professional_Air_Traffic_Controllers_Organization_%281968%29#August_1981_strike)
 - [Funded Osama](https://slate.com/news-and-politics/2004/06/how-reagan-made-a-terrorist-kingpin-of-osama.html)
+- [Average wages went down](https://en.wikipedia.org/wiki/Reaganomics#Real_wages)
 
 ## Bad stuff people he appointed did (cringe)
 
