@@ -14,5 +14,5 @@ haii! ^w^ Wonald Weagan was cwing vwv b-but not in a cool way!! uwa! >w<
 ## Bad stuff people he appointed did (cringe)
 
 - [James Watt](https://en.wikipedia.org/wiki/James_G._Watt), Reagan's Secretary of the Interior was indicted on 24 felony counts and pleaded guilty to a single misdemeanor
-- Phillip D. Winn, Assistant HUD Secretary. Pleaded guilty to one count of scheming to give illegal gratuities
-- [Deborah Gore Dean](https://en.wikipedia.org/wiki/Deborah_Gore_Dean), executive assistant to Secretary Pierce – indicted on thirteen counts, three counts of conspiracy, one count of accepting an illegal gratuity, four counts of perjury, and five counts of concealing articles. She was convicted on twelve
+- Phillip D. Winn, Assistant HUD Secretary. [Pleaded guilty to one count of scheming to give illegal gratuities](https://www.nytimes.com/1993/10/27/us/ex-official-is-convicted-in-hud-scandal-of-80-s.html)
+- [Deborah Gore Dean](https://en.wikipedia.org/wiki/Deborah_Gore_Dean), executive assistant to Secretary Pierce – [indicted on thirteen counts, three counts of conspiracy, one count of accepting an illegal gratuity, four counts of perjury, and five counts of concealing articles. She was convicted on twelve](https://www.nytimes.com/1993/10/27/us/ex-official-is-convicted-in-hud-scandal-of-80-s.html)
