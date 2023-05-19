@@ -10,6 +10,9 @@ haii! ^w^ Wonald Weagan was cwing vwv b-but not in a cool way!! uwa! >w<
 - It also contained the [Comprehensive Forfeiture Act of 1984](https://www.congress.gov/bill/98th-congress/senate-bill/948), enabling the wide use of [asset forfeiture](https://mises.org/wire/joe-biden-father-drug-wars-asset-forfeiture-program) to [pad police budgets](https://www.npr.org/templates/story/story.php?storyId=91490480).
 - [He ignored AIDS for years, up until his friend (and 20,000 others) died from it.](https://en.wikipedia.org/wiki/Ronald_Reagan#Response_to_the_AIDS_epidemic) Not just ignored it though, [straight up thought it was funny](https://web.archive.org/web/20210301172106/https://www.washingtonpost.com/news/arts-and-entertainment/wp/2015/12/01/a-disturbing-new-glimpse-at-the-reagan-administrations-indifference-to-aids/).
 - Was against stem cell research up until the day he got Alzheimers.
+- [Poverty rate rose under Reagan](https://www.shmoop.com/reagan-era/statistics.html)
+- [Used his role as president to fire a striking labor union, which played a very significant role in the decline of union membership](https://en.wikipedia.org/wiki/Professional_Air_Traffic_Controllers_Organization_%281968%29#August_1981_strike)
+- [Funded Osama](https://slate.com/news-and-politics/2004/06/how-reagan-made-a-terrorist-kingpin-of-osama.html)
 
 ## Bad stuff people he appointed did (cringe)
 
