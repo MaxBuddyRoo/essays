@@ -2,7 +2,7 @@ Based off of the [dessalines Socialism FAQ](https://github.com/dessalines/essays
 
 Oh yeah, some of the resources will call USSR/China/etc. socialist/communist, but IMO they are state capitalist, for reasons that should be obvious later, but because of like all lefty subs enforcing "left unity" I sadly have to rely on a few libs.
 
-ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE
+ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE, this is just me adding whatever useful links i find and organizing them
 
 ## Contents
 
@@ -15,6 +15,7 @@ ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE
   - [On USSR](#on-ussr)
   - [On China](#on-china)
   - [On Israel/Palestine](#on-israelpalestine)
+  - [On Public Housing/Homelessness](#on-public-housinghomelessness)
   - [Other](#other)
 
 
@@ -92,6 +93,23 @@ Debunking China apologia:
 - [23 out of every 24 conflict deaths have been palestinian](https://www.vox.com/2014/7/14/5898581/chart-israel-palestine-conflict-deaths)
 - [Occupied Palestine Is as Entitled to the World’s Solidarity as Occupied Ukraine](https://jacobin.com/2022/04/palestine-israel-occupation-solidarity-ukraine-russia-al-aqsa-mosque)
 -  [A Brief History of Jewish Anti-Zionism](https://redmenace.libsyn.com/unlocked-a-brief-history-of-jewish-anti-zionism)
+
+## On Public Housing/Homelessness
+
+- [How Finland Ended Homelessness](https://www.youtube.com/watch?v=kbEavDqA8iE) (in the description of this video there are so many resources i was tempted to put all of them here)
+- [How Socialists Solved The Housing Crisis](https://www.youtube.com/watch?v=LVuCZMLeWko)
+- [Social Housing in the United States](https://www.peoplespolicyproject.org/wp-content/uploads/2018/04/SocialHousing.pdf)
+- [The Solution Is Social Housing](https://jacobin.com/2018/04/affordable-housing-crisis-peoples-policy-project)
+- [Remembering Red Vienna](https://jacobin.com/2017/02/red-vienna-austria-housing-urban-planning)
+- [We Can Have Beautiful Public Housing](https://jacobin.com/2018/11/beautiful-public-housing-red-vienna-social-housing)
+- [ON THE ABOLITION OF HOMELESSNESS](https://docs.google.com/document/u/1/d/e/2PACX-1vTWrINbIrJaiID5j2-1r3YvOUwj_uxmzfxLrRGQdMXsLKdvZJYklZJ0u4c6nSQyd8B06tRczvuWRUPM/pub)
+- [Housing First - a way towards ending homelessness](https://www.youtube.com/watch?v=k6DPjCmc3BM)
+- [How to Fix America's Worsening Homeless Crisis](https://www.youtube.com/watch?v=LduaiX0yj6E)
+
+Landlord-focused:
+- [Are Landlords Really That Bad?](https://www.youtube.com/watch?v=m1m7WmKJZyQ&pp=ygUJbGFuZGxvcmRz)
+- [The Problem With Landlords and Rent](https://www.youtube.com/watch?v=9gm4b1WgVEQ)
+- [Landlord arguments suck (Debunking Arguments Landlords Use to Justify Their Existence)](https://www.youtube.com/watch?v=wAuE1MLditQ)
 
 ## Other
 - [Clarence Thomas](https://www.reddit.com/r/Keep_Track/comments/13cyu8c/the_corruption_of_clarence_thomas_a_history/)
