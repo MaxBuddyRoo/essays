@@ -23,3 +23,4 @@ a bunch of random links that dont fit in any of my other essays
 - [Cell phone? yeah some stores do that](https://twitter.com/Silly_Goobster/status/1646294275431251969)
 - [Competition for worst UI](https://twitter.com/0xDesigner/status/1642554817590566915)
 - [SODA](https://twitter.com/i/status/1637188116111843330)
+- [A Brief History of Why Mineplex Failed](https://t3hero.medium.com/a-brief-history-of-why-mineplex-failed-75fe08c77096)
