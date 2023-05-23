@@ -5,6 +5,7 @@
 - [Good article on him, author unknown](http://fs2.american.edu/dfagel/www/Harper's%20Magazine%20THE%20CASE%20AGAINST%20HENRY%20KISSINGER_(former%20Secretary%20of%20State).htm)
 - [His RationalWiki page](https://rationalwiki.org/wiki/Henry_Kissinger#The_ugly)
 - [The Trials Of Henry Kissinger (2002)](https://youtu.be/tIVDZYVDraM)
+- [Summary in The Nation](https://12ft.io/proxy?q=https%3A%2F%2Fwww.thenation.com%2Farticle%2Farchive%2Fhenry-kissinger-hillary-clintons-tutor-in-war-and-peace%2F)
 - [Involved in prolific illegal wiretapping campaign orchestrated by Nixon](https://www.nytimes.com/1976/03/11/archives/nixon-testifies-kissinger-picked-wiretap-targets-says-he-ordered.html)
 - One of the architects of the [secret bombing campaign in Cambodia](https://en.wikipedia.org/wiki/Operation_Freedom_Deal), which played an important role in bringing the Khmer Rouge to power, who killed [1.5 million to 3 million people](https://cla.umn.edu/chgs/holocaust-genocide-education/resource-guides/cambodia)
 - In accordance with his so-called ["Madman Theory"](https://en.wikipedia.org/wiki/Madman_theory), Kissinger had Nixon send 18 B-52 bomber planes armed with nuclear warheads to the eastern Soviet border as part of [Operation "Giant Lance"](https://en.wikipedia.org/wiki/Operation_Giant_Lance)
