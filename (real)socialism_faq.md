@@ -113,3 +113,4 @@ Landlord-focused:
 
 ## Other
 - [Clarence Thomas](https://www.reddit.com/r/Keep_Track/comments/13cyu8c/the_corruption_of_clarence_thomas_a_history/)
+- [Autistic Liberation is Anti-Capitalist at its core](https://www.reddit.com/r/AutisticPride/comments/szvmno/autistic_liberation_is_anticapitalist_at_its_core/)
