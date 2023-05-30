@@ -16,3 +16,4 @@
 - [Alluded to claims that MLK was associated with communists](https://www.washingtonpost.com/archive/politics/1983/10/22/reagan-calls-mrs-king-to-explain/2313b0b8-01f9-491c-9d47-ddaeb19fe27d/)
 - Opposed the Voting Rights Act of 1965 (looking for source atm but i wanna focus on war on drugs stuff)
 - [More Imprisonment Does Not Reduce State Drug Problems](https://www.pewtrusts.org/en/research-and-analysis/issue-briefs/2018/03/more-imprisonment-does-not-reduce-state-drug-problems)
+- [Look at these graphs](https://old.reddit.com/r/196/comments/13vctud/my_ruleagan_collection/)
