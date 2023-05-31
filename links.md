@@ -24,3 +24,5 @@ a bunch of random links that dont fit in any of my other essays
 - [Competition for worst UI](https://twitter.com/0xDesigner/status/1642554817590566915)
 - [SODA](https://twitter.com/i/status/1637188116111843330)
 - [A Brief History of Why Mineplex Failed](https://t3hero.medium.com/a-brief-history-of-why-mineplex-failed-75fe08c77096)
+- [THE ANTI-LGBTQ+ WTF FILES](https://twitter.com/theserfstv/status/1663762753952321538?s=46&t=fj_SykERr-wlo0rYhktdrQ)
+- [SDL thread on why dems > reps (IN COMPARISON)](https://twitter.com/socdoneleft/status/1590166449557241857?s=46&t=fj_SykERr-wlo0rYhktdrQ)
