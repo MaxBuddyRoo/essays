@@ -27,3 +27,4 @@ a bunch of random links that dont fit in any of my other essays
 - [THE ANTI-LGBTQ+ WTF FILES](https://twitter.com/theserfstv/status/1663762753952321538?s=46&t=fj_SykERr-wlo0rYhktdrQ)
 - [SDL thread on why dems > reps (IN COMPARISON)](https://twitter.com/socdoneleft/status/1590166449557241857?s=46&t=fj_SykERr-wlo0rYhktdrQ)
 - [GD NONG Song File Hub](https://songfilehub.com/home)
+- [Dave Chappelle's "Some Of My Best Friends Are Trans" Story Doesn't Hold Up](https://michaelhobbes.substack.com/p/dave-chappelles-some-of-my-best-friends)
