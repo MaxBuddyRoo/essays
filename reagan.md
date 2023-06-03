@@ -19,6 +19,5 @@
 - [Funded Osama](https://slate.com/news-and-politics/2004/06/how-reagan-made-a-terrorist-kingpin-of-osama.html)
 - [Average wages went down](https://en.wikipedia.org/wiki/Reaganomics#Real_wages)
 - [Alluded to claims that MLK was associated with communists](https://www.washingtonpost.com/archive/politics/1983/10/22/reagan-calls-mrs-king-to-explain/2313b0b8-01f9-491c-9d47-ddaeb19fe27d/)
-- [More Imprisonment Does Not Reduce State Drug Problems](https://www.pewtrusts.org/en/research-and-analysis/issue-briefs/2018/03/more-imprisonment-does-not-reduce-state-drug-problems)
 - [Signed into Law the Immigration Reform and Control Act of 1986, which made it illegal to hire illegal immigrants](https://en.wikipedia.org/wiki/Immigration_Reform_and_Control_Act_of_1986)
-- 
+- Signed into law the [Comprehensive Crime Control Act of 1984, which increased federal penalties for cultivation, possession, or transfer of marijuana.](https://en.wikipedia.org/wiki/Comprehensive_Crime_Control_Act_of_1984) [This doesn't solve drug problems](https://www.pewtrusts.org/en/research-and-analysis/issue-briefs/2018/03/more-imprisonment-does-not-reduce-state-drug-problems), and yet the federal annual budget of the FBI's drug enforcement units went from 8 million to 95 million.
