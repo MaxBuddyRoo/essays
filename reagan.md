@@ -2,7 +2,7 @@
 
 > "In all of the books that have come out about the administration, it's been extremely difficult to hide the fact that Reagan didn't have the foggiest idea what was going on. Whenever he wasn't properly programmed, the things that would come out of his mouth were like—they weren't lies, really, they were just kind of the babbling of a child. If a child babbles, it's not lies, it's just sort of on another plane. To be able to lie, you have to have a certain degree of competence, you have to know what truth is. And there didn't seem to be any indication that that was the case here."
 
-"- Noam Chomsky"
+`- Noam Chomsky`
 
 - [How Reagan Ruined Everything](https://www.youtube.com/watch?v=l7dHvqA-WB4)
 - [His chapter in People's History](https://www.historyisaweapon.com/defcon1/zinncarebu21.html)
