@@ -1,6 +1,7 @@
 > ["How far up your ass does this guy's dick have to be before you realize he's fucking you, man? People are just, "I like him. I don’t know what it is. He looks good on TV, he brought back patriotism. Goddamn it, he's a good American. Hold it, something's slapping my ass. Oh, my God, he's fucking us!"](https://subslikescript.com/movie/Bill_Hicks_Sane_Man-287337)
 
 > "In all of the books that have come out about the administration, it's been extremely difficult to hide the fact that Reagan didn't have the foggiest idea what was going on. Whenever he wasn't properly programmed, the things that would come out of his mouth were like—they weren't lies, really, they were just kind of the babbling of a child. If a child babbles, it's not lies, it's just sort of on another plane. To be able to lie, you have to have a certain degree of competence, you have to know what truth is. And there didn't seem to be any indication that that was the case here." 
+
 \- Noam Chomsky
 
 
