@@ -69,6 +69,7 @@ Debunking USSR apologia:
 - [Is China a New Colonial Power?](https://thediplomat.com/2020/11/is-china-a-new-colonial-power/)
 - [Chinese State Capitalism](https://www.csis.org/analysis/chinese-state-capitalism)
 - [No, china is not a “proletarian democracy”](https://docs.google.com/document/d/1hMfTFsWVRgw1RHijF7KDDKfiksUTlsrGdLB064XnIzs/edit)
+- [/leftypol/ thread on China's relationship with the CIA](https://leftypol.org/edu/res/8757.html) (as a warning it is /leftypol/)
 
 Debunking China apologia:
 - [Leftist Source compilation on Uyghur stuff, by r/neoliberal of all places](https://old.reddit.com/r/neoliberal/comments/mirzc2/debunking_effortpost_2_xinjiang_camps_denial_a/)
