@@ -1,6 +1,6 @@
 > ["How far up your ass does this guy's dick have to be before you realize he's fucking you, man? People are just, "I like him. I don’t know what it is. He looks good on TV, he brought back patriotism. Goddamn it, he's a good American. Hold it, something's slapping my ass. Oh, my God, he's fucking us!"](https://subslikescript.com/movie/Bill_Hicks_Sane_Man-287337)
 
-- [Banger reddit comment on r/SLS about him](https://www.reddit.com/r/ShitLiberalsSay/comments/ce2v7l/comment/etydg3l/)
+- [How Reagan Ruined Everything](https://www.youtube.com/watch?v=l7dHvqA-WB4)
 - [His chapter in People's History](https://www.historyisaweapon.com/defcon1/zinncarebu21.html)
 - Enacted strict gun control in response to the Black Protestors with the [Mulford Act](https://en.wikipedia.org/wiki/Mulford_Act)
 - Perpetrated the [Iran-Contra affair](https://en.wikipedia.org/wiki/Iran%E2%80%93Contra_affair), funding a right-wing rebel group in Nicaragua seeking to overthrow the socialist Sandinista government of Nicaragua.
