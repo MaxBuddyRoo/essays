@@ -86,7 +86,7 @@ Debunking China apologia:
 - [The Israel-Palestine conflict: a brief, simple history](https://www.youtube.com/watch?v=iRYZjOuUnlU)
 - [Everything you need to know about Israel-Palestine](https://www.vox.com/2018/11/20/18079996/israel-palestine-conflict-guide-explainer)
 - [r/Palestine list of documentaries](https://www.reddit.com/r/Palestine/wiki/docs/)
-- [Does Anti-Zionism = Anti-Semitism? PragerU Says "Yes".](https://www.youtube.com/watch?v=dlcJ9ShLXMo)
+- [Does Anti-Zionism = Anti-Semitism? PragerU Says "Yes".](https://www.youtube.com/watch?v=dlcJ9ShLXMo) (and they are wrong)
 - [Decolonize Palestine](https://decolonizepalestine.com/)
 - [Mega-List: Israel’s Crimes & Controversies](https://www.reddit.com/r/list_palestine/comments/l43xgk/megalist_israels_crimes_controversies_full/)
 - [Palestine: a Comprehensive Document for Palestinian Liberation](https://docs.google.com/document/d/1cUnwWkLUNrD5AaTEVmgFwnVXXUDFEVsUv4cF-AcokTQ/edit)
