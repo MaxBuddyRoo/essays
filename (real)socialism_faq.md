@@ -81,6 +81,8 @@ Debunking China apologia:
 
 ## On Israel/Palestine
 
+- ⭐[r/TheDeprogram wiki on Israel](https://www.reddit.com/r/TheDeprogram/wiki/index/debunking/israel/)
+- ⭐[Empire Files: How Palestine Became Colonized](https://www.youtube.com/watch?v=BT5L4YU_Fl4)
 - [The Israel-Palestine conflict: a brief, simple history](https://www.youtube.com/watch?v=iRYZjOuUnlU)
 - [Everything you need to know about Israel-Palestine](https://www.vox.com/2018/11/20/18079996/israel-palestine-conflict-guide-explainer)
 - [r/Palestine list of documentaries](https://www.reddit.com/r/Palestine/wiki/docs/)
@@ -89,7 +91,6 @@ Debunking China apologia:
 - [Mega-List: Israel’s Crimes & Controversies](https://www.reddit.com/r/list_palestine/comments/l43xgk/megalist_israels_crimes_controversies_full/)
 - [Palestine: a Comprehensive Document for Palestinian Liberation](https://docs.google.com/document/d/1cUnwWkLUNrD5AaTEVmgFwnVXXUDFEVsUv4cF-AcokTQ/edit)
 - [Solidarity for Palestinian Human Rights McMaster’s Guide to Israeli Apartheid Week](https://docs.google.com/document/d/1rw55meTlE2p2eh1nTHvvREGHUITJoW7GuuIkgRuJyck/edit)
-- [Empire Files: How Palestine Became Colonized](https://www.youtube.com/watch?v=BT5L4YU_Fl4)
 - [A 50-Year Occupation: Israel’s Six-Day War Started With a Lie](https://theintercept.com/2017/06/05/a-50-year-occupation-israels-six-day-war-started-with-a-lie/)
 - [23 out of every 24 conflict deaths have been palestinian](https://www.vox.com/2014/7/14/5898581/chart-israel-palestine-conflict-deaths)
 - [Occupied Palestine Is as Entitled to the World’s Solidarity as Occupied Ukraine](https://jacobin.com/2022/04/palestine-israel-occupation-solidarity-ukraine-russia-al-aqsa-mosque)
@@ -97,8 +98,8 @@ Debunking China apologia:
 
 ## On Public Housing/Homelessness
 
+- ⭐[How Socialists Solved The Housing Crisis](https://www.youtube.com/watch?v=LVuCZMLeWko)
 - [How Finland Ended Homelessness](https://www.youtube.com/watch?v=kbEavDqA8iE) (in the description of this video there are so many resources i was tempted to put all of them here)
-- [How Socialists Solved The Housing Crisis](https://www.youtube.com/watch?v=LVuCZMLeWko)
 - [Social Housing in the United States](https://www.peoplespolicyproject.org/wp-content/uploads/2018/04/SocialHousing.pdf)
 - [The Solution Is Social Housing](https://jacobin.com/2018/04/affordable-housing-crisis-peoples-policy-project)
 - [Remembering Red Vienna](https://jacobin.com/2017/02/red-vienna-austria-housing-urban-planning)
