@@ -81,8 +81,8 @@ Debunking China apologia:
 
 ## On Israel/Palestine
 
-- ⭐[r/TheDeprogram wiki on Israel](https://www.reddit.com/r/TheDeprogram/wiki/index/debunking/israel/)
-- ⭐[Empire Files: How Palestine Became Colonized](https://www.youtube.com/watch?v=BT5L4YU_Fl4)
+- ⭐ [r/TheDeprogram wiki on Israel](https://www.reddit.com/r/TheDeprogram/wiki/index/debunking/israel/)
+- ⭐ [Empire Files: How Palestine Became Colonized](https://www.youtube.com/watch?v=BT5L4YU_Fl4)
 - [The Israel-Palestine conflict: a brief, simple history](https://www.youtube.com/watch?v=iRYZjOuUnlU)
 - [Everything you need to know about Israel-Palestine](https://www.vox.com/2018/11/20/18079996/israel-palestine-conflict-guide-explainer)
 - [r/Palestine list of documentaries](https://www.reddit.com/r/Palestine/wiki/docs/)
@@ -98,8 +98,8 @@ Debunking China apologia:
 
 ## On Public Housing/Homelessness
 
-- ⭐[How Socialists Solved The Housing Crisis](https://www.youtube.com/watch?v=LVuCZMLeWko)
-- [How Finland Ended Homelessness](https://www.youtube.com/watch?v=kbEavDqA8iE) (in the description of this video there are so many resources i was tempted to put all of them here)
+- ⭐ [How Socialists Solved The Housing Crisis](https://www.youtube.com/watch?v=LVuCZMLeWko)
+- ⭐ the video description of: [How Finland Ended Homelessness](https://www.youtube.com/watch?v=kbEavDqA8iE)
 - [Social Housing in the United States](https://www.peoplespolicyproject.org/wp-content/uploads/2018/04/SocialHousing.pdf)
 - [The Solution Is Social Housing](https://jacobin.com/2018/04/affordable-housing-crisis-peoples-policy-project)
 - [Remembering Red Vienna](https://jacobin.com/2017/02/red-vienna-austria-housing-urban-planning)
