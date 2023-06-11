@@ -16,6 +16,7 @@ ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE, this is ju
   - [On China](#on-china)
   - [On Israel/Palestine](#on-israelpalestine)
   - [On Public Housing/Homelessness](#on-public-housinghomelessness)
+  - [On Police](#on-police)
   - [Other](#other)
 
 
