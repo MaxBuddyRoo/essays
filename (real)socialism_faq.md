@@ -46,7 +46,7 @@ ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE, this is ju
 
 - [Rosa Luxembourg - Leninism or Marxism](https://archive.org/details/Leninism_or_Marxism_Rosa_Luxemburg)
 - [Stalin Was On The RIGHT & Not A LEFTIST](https://www.youtube.com/watch?v=85VnRMVM0ys)
-- [Noam Chomsky - The Soviet Union vs. Socialism](https://www.youtube.com/watch?v=06-XcAiswY4) (finally, leftism)
+- [Noam Chomsky - The Soviet Union vs. Socialism](https://www.youtube.com/watch?v=06-XcAiswY4)
 - [Noam Chomsky - Lenin, the USSR, and the Predictions of Bakunin](https://www.youtube.com/watch?v=gfdnbMd9BiE)
 - [Noam Chomsky on Leninism](https://www.youtube.com/watch?v=jxhT9EVj9Kk)
 - [Noam Chomsky - Marxism vs. Leninism](https://www.youtube.com/watch?v=l_jRd59qy0A)
