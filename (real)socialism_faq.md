@@ -113,5 +113,11 @@ Landlord-focused:
 - [The Problem With Landlords and Rent](https://www.youtube.com/watch?v=9gm4b1WgVEQ)
 - [Landlord arguments suck (Debunking Arguments Landlords Use to Justify Their Existence)](https://www.youtube.com/watch?v=wAuE1MLditQ)
 
+## On Police
+
+- [Explaining "13/50"](https://www.youtube.com/watch?v=psf_rK8DIcs)
+- [What does it mean when socialists say that all cops are bastards?](https://www.reddit.com/r/socialism/comments/c0x2s6/comment/er8vxz0/)
+- [r/anarchism on cops](https://www.reddit.com/r/anarchism/wiki/acab/)
+
 ## Other
 - [Autistic Liberation is Anti-Capitalist at its core](https://www.reddit.com/r/AutisticPride/comments/szvmno/autistic_liberation_is_anticapitalist_at_its_core/)
