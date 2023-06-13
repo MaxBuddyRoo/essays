@@ -127,6 +127,7 @@ Landlord-focused:
 - [Your "Carbon Footprint" Is A Scam](https://www.youtube.com/watch?v=5sgRTbTm91Q)
 - [Why Big Oil loves to talk about your carbon footprint](https://www.youtube.com/watch?v=vqZVCEnY-Us)
 - [Message to liberals about climate change](https://www.youtube.com/watch?v=UZyBQdFzh7Y)
+- [Capitalism Is Destroying Us - The New Climate Report](https://www.youtube.com/watch?v=pvRtNGW9Ajk)
 
 ## Other
 - [Autistic Liberation is Anti-Capitalist at its core](https://www.reddit.com/r/AutisticPride/comments/szvmno/autistic_liberation_is_anticapitalist_at_its_core/)
