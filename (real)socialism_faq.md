@@ -17,7 +17,7 @@ ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE, this is ju
   - [On Israel/Palestine](#on-israelpalestine)
   - [On Public Housing/Homelessness](#on-public-housinghomelessness)
   - [On Police](#on-police)
-  - [On Enviornmentalism](#on-enviornmentalism)
+  - [On Environmentalism](#on-Environmentalism)
   - [Other](#other)
 
 
@@ -121,7 +121,7 @@ Landlord-focused:
 - [What does it mean when socialists say that all cops are bastards?](https://www.reddit.com/r/socialism/comments/c0x2s6/comment/er8vxz0/)
 - [r/anarchism on cops](https://www.reddit.com/r/anarchism/wiki/acab/)
 
-## On Enviornmentalism
+## On Environmentalism
 
 - [The carbon footprint sham](https://mashable.com/feature/carbon-footprint-pr-campaign-sham)
 - [Your "Carbon Footprint" Is A Scam](https://www.youtube.com/watch?v=5sgRTbTm91Q)
