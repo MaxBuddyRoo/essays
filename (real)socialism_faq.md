@@ -123,7 +123,11 @@ Landlord-focused:
 
 ## On Enviornmentalism
 
+- [The carbon footprint sham](https://mashable.com/feature/carbon-footprint-pr-campaign-sham)
+- [Your "Carbon Footprint" Is A Scam](https://www.youtube.com/watch?v=5sgRTbTm91Q)
+- [Why Big Oil loves to talk about your carbon footprint](https://www.youtube.com/watch?v=vqZVCEnY-Us)
 - [Message to liberals about climate change](https://www.youtube.com/watch?v=UZyBQdFzh7Y)
 
 ## Other
 - [Autistic Liberation is Anti-Capitalist at its core](https://www.reddit.com/r/AutisticPride/comments/szvmno/autistic_liberation_is_anticapitalist_at_its_core/)
+- [“Voting With Your Dollars” Is an Antidemocratic Illusion](https://jacobin.com/2021/03/boycotts-voting-milton-friedman)
