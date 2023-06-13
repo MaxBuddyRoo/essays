@@ -17,6 +17,7 @@ ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE, this is ju
   - [On Israel/Palestine](#on-israelpalestine)
   - [On Public Housing/Homelessness](#on-public-housinghomelessness)
   - [On Police](#on-police)
+  - [On Enviornmentalism](#on-enviornmentalism)
   - [Other](#other)
 
 
@@ -119,6 +120,10 @@ Landlord-focused:
 - [Explaining "13/50"](https://www.youtube.com/watch?v=psf_rK8DIcs)
 - [What does it mean when socialists say that all cops are bastards?](https://www.reddit.com/r/socialism/comments/c0x2s6/comment/er8vxz0/)
 - [r/anarchism on cops](https://www.reddit.com/r/anarchism/wiki/acab/)
+
+## On Enviornmentalism
+
+- [Message to liberals about climate change](https://www.youtube.com/watch?v=UZyBQdFzh7Y)
 
 ## Other
 - [Autistic Liberation is Anti-Capitalist at its core](https://www.reddit.com/r/AutisticPride/comments/szvmno/autistic_liberation_is_anticapitalist_at_its_core/)
