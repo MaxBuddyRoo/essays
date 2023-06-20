@@ -27,6 +27,7 @@ ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE, this is ju
 ## On Socialism
 
 - [Socialism for Absolute Beginners](https://www.youtube.com/watch?v=fpKsygbNLT4)
+- [The ABC's of Socialism](https://s3.jacobinmag.com/issues/jacobin-abcs.pdf)
 - [Communism Works](https://docs.google.com/document/d/1wSMbJHwN_Pw54SFKkbeHdSM6VKoi7fGg0XR4RUy2Fio/edit)
 - [Analysing the Values and Limitations of Cooperative Firms](https://docs.google.com/document/d/1ScS39TWXcPkGOpek4tAfp0rAD5usbwIA05pbqVQdO6g/edit)
 - [Workplace Democracy](https://www.youtube.com/watch?v=yZHYiz60R5Q)
