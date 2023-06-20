@@ -25,7 +25,6 @@ ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE, this is ju
 
 ## Didn't socialism/communism fail? It works in theory but not in practice.
 
-- [Socialism HAS Worked](https://www.youtube.com/watch?v=zIddCEBCKHQ)
 - [Communism Works](https://docs.google.com/document/d/1wSMbJHwN_Pw54SFKkbeHdSM6VKoi7fGg0XR4RUy2Fio/edit)
 - [Analysing the Values and Limitations of Cooperative Firms](https://docs.google.com/document/d/1ScS39TWXcPkGOpek4tAfp0rAD5usbwIA05pbqVQdO6g/edit)
 - [Workplace Democracy](https://www.youtube.com/watch?v=yZHYiz60R5Q)
@@ -34,7 +33,12 @@ ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE, this is ju
 - [Democracy in the Workplace is a NECESSITY](https://www.youtube.com/watch?v=c80sTzXlkPY)
 - [Is This 'Your City on Socialism' Meme Accurate?](https://www.snopes.com/fact-check/your-city-on-socialism/)
 - [Were the Nazis Socialists?](https://www.snopes.com/news/2017/09/05/were-nazis-socialists/), [2](https://www.reddit.com/r/therewasanattempt/comments/cblf1y/comment/ethf3t8/), [3](https://www.reddit.com/r/ShitLiberalsSay/wiki/index/#wiki_the_nazis_were_socialists.2C_communists_or_leftists), [4](https://www.youtube.com/watch?v=X9ez6w5BUMM)
+
+Examples:
 - [The Paris Commune: Our First Revolution](https://www.youtube.com/watch?v=zXlHGseyvfw)
+- [Socialism HAS Worked](https://www.youtube.com/watch?v=zIddCEBCKHQ)
+- [Twitter thread on Thomas Sankara (the GOAT🐐)](https://twitter.com/Marxist777/status/1639363297123131420)
+- 
 
 ## On Capitalism
 
@@ -44,6 +48,8 @@ ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE, this is ju
 
 - [Everything you ever wanted to know about tankies, but were afraid to ask](https://libcom.org/article/everything-you-ever-wanted-know-about-tankies-were-afraid-ask)
 - [Letter From a Former Tankie](https://www.youtube.com/watch?v=5FcNYFtZhnI)
+- [Vaush - Clarifying my Position on Tankies](https://www.youtube.com/watch?v=KJxd-4W6aTY)
+- [BELITTLE the Tankies](https://www.youtube.com/watch?v=CcTaeCiNh2U)
 
 ## On USSR
 
