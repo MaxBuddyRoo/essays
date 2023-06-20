@@ -9,7 +9,8 @@ ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE, this is ju
 
 
 <!-- toc -->
-  - [Didn't socialism/communism fail? It works in theory but not in practice.](#didnt-socialismcommunism-fail-it-works-in-theory-but-not-in-practice)
+  - [On Socialism](#on-socialism)
+  - [Schools of Thoughts](#schools-of-thought)
   - [On Capitalism](#on-capitalism)
   - [On Tankies, broadly](#on-tankies-broadly)
   - [On USSR](#on-ussr)
@@ -23,8 +24,9 @@ ALSO THIS IS AN EARLY WIP, NO WHERE *NEAR* AS BIG AS I WANT IT TO BE, this is ju
 
 <!-- tocstop -->
 
-## Didn't socialism/communism fail? It works in theory but not in practice.
+## On Socialism
 
+- [Socialism for Absolute Beginners](https://www.youtube.com/watch?v=fpKsygbNLT4)
 - [Communism Works](https://docs.google.com/document/d/1wSMbJHwN_Pw54SFKkbeHdSM6VKoi7fGg0XR4RUy2Fio/edit)
 - [Analysing the Values and Limitations of Cooperative Firms](https://docs.google.com/document/d/1ScS39TWXcPkGOpek4tAfp0rAD5usbwIA05pbqVQdO6g/edit)
 - [Workplace Democracy](https://www.youtube.com/watch?v=yZHYiz60R5Q)
@@ -38,11 +40,20 @@ Examples:
 - [The Paris Commune: Our First Revolution](https://www.youtube.com/watch?v=zXlHGseyvfw)
 - [Socialism HAS Worked](https://www.youtube.com/watch?v=zIddCEBCKHQ)
 - [Twitter thread on Thomas Sankara (the GOAT🐐)](https://twitter.com/Marxist777/status/1639363297123131420)
-- 
+
+## Schools of Thought
+- [Karl Marx on Alienation](https://www.youtube.com/watch?v=PZ4VzhIuKCQ)
 
 ## On Capitalism
 
-- [Libcom - Capitalism: an introduction](https://libcom.org/article/capitalism-introduction)
+- ⭐ [Libcom - Capitalism: an introduction](https://libcom.org/article/capitalism-introduction)
+- [Is Capitalism Bad For You?](https://www.youtube.com/watch?v=JvJTUZaivCI)
+- [Richard D. Wolff Explains How Capitalism is Theft](https://www.youtube.com/watch?v=GFEzJovH2yo), [again](https://www.youtube.com/watch?v=2mI_RMQEulw)
+- [Does Capitalism Mean Freedom?](https://www.youtube.com/watch?v=pMALdj8u_do)
+
+## On Anarchism
+
+- [The history of Anarchism in 8 minutes](https://www.youtube.com/watch?v=6YitdjMORoU)
 
 ## On Tankies, broadly
 
@@ -140,3 +151,4 @@ Landlord-focused:
 ## Other
 - [Autistic Liberation is Anti-Capitalist at its core](https://www.reddit.com/r/AutisticPride/comments/szvmno/autistic_liberation_is_anticapitalist_at_its_core/)
 - [“Voting With Your Dollars” Is an Antidemocratic Illusion](https://jacobin.com/2021/03/boycotts-voting-milton-friedman)
+- [Bernie is good, actually](https://www.reddit.com/r/SandersForPresident/comments/80msrs/the_real_purpose_of_socialism_albert_einstein/dux9a4n/)
