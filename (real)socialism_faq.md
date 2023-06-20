@@ -67,6 +67,7 @@ Debunking USSR apologia:
 
 ## On China
 
+- [Twitter thread on how modern China is imperialist and capitalist](https://twitter.com/Marxist777/status/1670701647415181312?s=20)
 - [Party State Capitalism in China](https://online.ucpress.edu/currenthistory/article/120/827/207/118341/Party-State-Capitalism-in-China)
 - [Beijing now has more billionaires than any city](https://www.bbc.com/news/business-56671638)
 - [Is China a New Colonial Power?](https://thediplomat.com/2020/11/is-china-a-new-colonial-power/)
