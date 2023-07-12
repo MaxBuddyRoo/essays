@@ -2,7 +2,7 @@ Resources regarding VDS (Vaush Derangement Syndrome)
 
 - ⭐ [Addressing the Allegations](https://www.youtube.com/watch?v=8ePpsGfU1m8) The BEST response to pedo allegations he's made, adresses ALL of the clips, specifically from the [twitter thread by Marxist777](https://twitter.com/Marxist777/status/1667964539315339265)
 - ⭐ [A Retrospective on the Sexual Harassment Drama](https://www.reddit.com/r/VaushV/comments/d1x0qx/a_retrospective_on_the_sexual_harassment_drama/), probably best response to any claims regarding Poppy, [archive](https://archive.is/hS0cB)
-- ⭐ [(Almost) Everything I've Ever Been CANCELLED For](https://www.youtube.com/watch?v=vfvvWw63Yh0) Covers a lot of stuff, from memory Poppy, tactical n word, CP, and more
+- ⭐ [(Almost) Everything I've Ever Been CANCELLED For](https://www.youtube.com/watch?v=vfvvWw63Yh0) Covers a lot of stuff (Poppy, nuke israel, thought slime stream, tactical n word, CP, and more)
 - [Does Vaush Want to LEGALIZE CP? Debate with a Viewer](https://www.youtube.com/watch?v=6-Q2NTYM3SM) Responding to claims of him wanting to legalize CP
 - [Is Vaush a CRYPTO-FASCIST!? (Exposed!) (Not Clickbait!!!)](https://www.youtube.com/watch?v=QaD4xqkO0sE) Response to most claims of transphobia, specifically from [this video](https://twitter.com/lporiginalg/status/1230667829537427462)
 - [Context for the "The way I see it, the age of consent exists..."](https://imgur.com/a/lUfKdqn), [2](https://twitter.com/Silurker/status/1325732593501835264?s=20)
