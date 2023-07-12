@@ -141,6 +141,7 @@ Landlord-focused:
 - [Explaining "13/50"](https://www.youtube.com/watch?v=psf_rK8DIcs)
 - [What does it mean when socialists say that all cops are bastards?](https://www.reddit.com/r/socialism/comments/c0x2s6/comment/er8vxz0/)
 - [r/anarchism on cops](https://www.reddit.com/r/anarchism/wiki/acab/)
+- https://www.nytimes.com/2023/06/04/nyregion/brooklyn-brownsville-no-police.html
 
 ## On Environmentalism
 
