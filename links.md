@@ -30,3 +30,4 @@ a bunch of random links that dont fit in any of my other essays
 - [Dave Chappelle's "Some Of My Best Friends Are Trans" Story Doesn't Hold Up](https://michaelhobbes.substack.com/p/dave-chappelles-some-of-my-best-friends)
 - [The corruption of Clarence Thomas: A history](https://www.reddit.com/r/Keep_Track/comments/13cyu8c/the_corruption_of_clarence_thomas_a_history/)
 - https://medium.com/@MsJayTeeRattray/the-good-doctor-doesnt-look-good-for-autistic-people-e3171890478b
+- [What cuases autism diagnoses](https://www.reddit.com/r/dataisbeautiful/comments/14ssf5l/oc_autism_rates_are_driven_by_changes_in_policy/)
