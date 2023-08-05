@@ -1,0 +1,1 @@
+Recently popular [sexual harasser](https://twitter.com/themattdimitri/status/1404227421570797572) and "political commentator" Jimmy Dore said that ["Joe Biden is a bigger fascist than Donald Trump, and I'll debate anybody on that. That's just a fact"](https://twitter.com/PostLeftWatch/status/1680338694585335808) Here's why he's wrong:
