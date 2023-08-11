@@ -31,3 +31,4 @@ a bunch of random links that dont fit in any of my other essays
 - [The corruption of Clarence Thomas: A history](https://www.reddit.com/r/Keep_Track/comments/13cyu8c/the_corruption_of_clarence_thomas_a_history/)
 - https://medium.com/@MsJayTeeRattray/the-good-doctor-doesnt-look-good-for-autistic-people-e3171890478b
 - [What cuases autism diagnoses](https://www.reddit.com/r/dataisbeautiful/comments/14ssf5l/oc_autism_rates_are_driven_by_changes_in_policy/)
+- [GD Pride trails](https://twitter.com/solstakao/status/1605086107468976129?lang=en), [2](https://t.co/bHlNnPpRA1)
