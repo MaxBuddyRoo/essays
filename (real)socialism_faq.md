@@ -155,3 +155,4 @@ Landlord-focused:
 - [Autistic Liberation is Anti-Capitalist at its core](https://www.reddit.com/r/AutisticPride/comments/szvmno/autistic_liberation_is_anticapitalist_at_its_core/)
 - [“Voting With Your Dollars” Is an Antidemocratic Illusion](https://jacobin.com/2021/03/boycotts-voting-milton-friedman)
 - [Bernie is good, actually](https://www.reddit.com/r/SandersForPresident/comments/80msrs/the_real_purpose_of_socialism_albert_einstein/dux9a4n/)
+- https://np.reddit.com/r/technology/comments/8xt55v/the_fcc_wants_to_charge_you_225_to_review_your/e25uz0g/
