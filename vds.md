@@ -2,7 +2,8 @@ Resources regarding VDS (Vaush Derangement Syndrome), made by [MaxBuddyRoo (me)]
 
 Certified [enny](https://twitter.com/enny43/status/1668089051570642946) and [thaena](https://github.com/MaxBuddyRoo?tab=followers) classic 😎
 
-- ⭐ [Addressing the Allegations](https://www.youtube.com/watch?v=8ePpsGfU1m8) The BEST response to pedo allegations he's made, adresses ALL of the clips, specifically from the [twitter thread by Marxist777](https://twitter.com/Marxist777/status/1667964539315339265)
+- ⭐ [Addressing the Allegations](https://www.youtube.com/watch?v=8ePpsGfU1m8) The (former) BEST response to pedo allegations he's made, adresses ALL of the clips, specifically from the [twitter thread by Marxist777](https://twitter.com/Marxist777/status/1667964539315339265)
+- ⭐ [The Context Video](https://www.youtube.com/watch?v=yXZw9vrsAgA) nvm this one just came out and addresses basically all the pedo allegations, but better
 - ⭐ [A Retrospective on the Sexual Harassment Drama](https://www.reddit.com/r/VaushV/comments/d1x0qx/a_retrospective_on_the_sexual_harassment_drama/), probably best response to any claims regarding Poppy, [archive](https://archive.is/hS0cB)
 - ⭐ [(Almost) Everything I've Ever Been CANCELLED For](https://www.youtube.com/watch?v=vfvvWw63Yh0) Covers a lot of stuff (Poppy, nuke israel, thought slime stream, tactical n word, CP, and more)
 - [Does Vaush Want to LEGALIZE CP? Debate with a Viewer](https://www.youtube.com/watch?v=6-Q2NTYM3SM) Responding to claims of him wanting to legalize CP
