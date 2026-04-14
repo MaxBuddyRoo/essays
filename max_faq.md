@@ -14,8 +14,12 @@ Religion / Philosophy
 - [Why is killing animals bad? / Why were you a vegan?](https://www.youtube.com/watch?v=C1vW9iSpLLk)
 
 Politics
+From the right:
 - [Why didn't you like Charlie Kirk?](https://zeteo.com/p/charlie-kirk-in-his-own-words), [2](https://www.youtube.com/watch?v=gVHQCfjNoqg)
 - [Why don't you like Israel? (Pre-Oct 7)](https://www.youtube.com/watch?v=BT5L4YU_Fl4), [Myths Debunked](https://www.youtube.com/watch?v=nXujfBBfvXU)
 - [Why don't you like Israel? (Post-Oct 7)](https://www.youtube.com/watch?v=D1gSrckT5G4)
+
+From nominal leftists:
 - Why don't you like BadEmpanada? ( [1](https://www.reddit.com/r/youtubedrama/comments/1ks2h00/badempanada_is_back_on_twitter_doing_pretty/) [2](https://www.reddit.com/r/Hasan_Piker/comments/1qodbpq/look_i_do_enjoy_bad_empanada_videos_but_like/) [3](https://www.reddit.com/r/Hasan_Piker/comments/1no8dre/badempandas_newest_tirade_is_genuinely_disgusting/) [4](https://www.reddit.com/r/Hasan_Piker/comments/1n5y982/bad_empanada_being_transphobic/) )
 - [Why don't you like tankies? / You just call everyone you don't like a tankie!](https://theanarchistlibrary.org/library/various-authors-always-against-the-tanks)
+- [You're just a liberal capitalist!](https://www.urbandictionary.com/define.php?term=Okay+and%3F)
