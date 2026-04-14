@@ -1,0 +1,14 @@
+I've been on the internet for many times and have held many controversial opinions. I hope this FAQ can answer many questions I get about literally everything.
+
+Tech
+- [Why do you use Linux?](https://www.youtube.com/watch?v=z4iSZetVkRg)
+- [How do you use Linux?](https://www.youtube.com/watch?v=uXvT7hHJfIE)
+- [How / why do you self-host?](https://www.youtube.com/watch?v=AtgCcMjtqF0)
+- - Also it makes me happy
+- [What fully legal sites do you use?](https://fmhy.pages.dev/)
+
+Religion / Philosophy
+- [Why are you an Atheist?](https://www.youtube.com/watch?v=Wu2hvtR5-5M)
+- [Why aren't you a utilitarian anymore?](https://www.youtube.com/watch?v=ciQPSMFC-JE)
+- [Why is killing animals bad? / Why were you a vegan?](https://www.youtube.com/watch?v=C1vW9iSpLLk)
+
