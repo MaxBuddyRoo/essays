@@ -19,6 +19,7 @@ From the right:
 - [Why don't you like Israel? (Pre-Oct 7)](https://www.youtube.com/watch?v=BT5L4YU_Fl4), [Myths Debunked](https://www.youtube.com/watch?v=nXujfBBfvXU)
 - [Why don't you like Israel? (Post-Oct 7)](https://www.youtube.com/watch?v=D1gSrckT5G4)
 - [Why don't you like JK Rowling?](https://www.vox.com/culture/23622610/jk-rowling-transphobic-statements-timeline-history-controversy) ([bypass paywall](https://archive.ph/O3uqq))
+- [What is a woman? / Why are trans women real women?](https://www.youtube.com/watch?v=sWSY_Y5fxUA)
 
 From nominal leftists:
 - [Why don't you like H3 / Ethan Klein?](https://www.youtube.com/watch?v=48YaRHrlf1o)
