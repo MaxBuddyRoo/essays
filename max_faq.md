@@ -26,3 +26,6 @@ From nominal leftists:
 - [You're just a liberal capitalist!](https://www.urbandictionary.com/define.php?term=Okay+and%3F)
 - [Why should I vote for democrats?](https://socdoneleft.substack.com/p/democratic-states-are-substantially)
 - [Why shouldn't I vote third party?](https://socdoneleft.substack.com/p/third-parties-almost-always-lose)
+
+# Misc
+- [Why don't you like Autism Speaks?](https://medium.com/@KirstenSchultz/a-roundup-of-posts-against-autism-speaks-5dbf7f8cfcc6) ([shorter version](https://x.com/Gluttony_Bishop/status/1657349629321592834))
