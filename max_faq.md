@@ -5,9 +5,7 @@ I've been on the internet for many years and have held many controversial opinio
 - [How do you use Linux?](https://www.youtube.com/watch?v=uXvT7hHJfIE)
 - [How / why do you self-host?](https://www.youtube.com/watch?v=AtgCcMjtqF0)
    - Also it makes me happy
-- [What fully legal sites do you use?](https://fmhy.pages.dev/)
-   - If you have the money buy [real debrid](https://real-debrid.com/) or [torbox](https://torbox.app/) and [set up stremio](https://bootstrapper.stremaddon.net/) trust me on this
-
+  
 # Religion / Philosophy
 - [Why are you an Atheist?](https://www.youtube.com/watch?v=Wu2hvtR5-5M)
 - [Why aren't you a utilitarian anymore?](https://www.youtube.com/watch?v=ciQPSMFC-JE)
