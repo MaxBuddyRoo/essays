@@ -31,3 +31,4 @@ From nominal leftists:
 - [Why Don't you like Autism Speaks?](https://medium.com/artfullyautistic/autism-speaks-is-the-largest-autism-organization-so-why-dont-autistic-people-like-it-f7b3bd30dd5c) [(collection of articles though many of them are deleted)](https://medium.com/@KirstenSchultz/a-roundup-of-posts-against-autism-speaks-5dbf7f8cfcc6) ([shorter version](https://x.com/Gluttony_Bishop/status/1657349629321592834))
 - [What's so good about Geometry Dash? / Why do you have 4k+ hours?](https://www.youtube.com/watch?v=L4bmmQLgv9s)
 - [Is Geometry Dash a rhythm game?](https://www.youtube.com/watch?v=DHdkvqjCmYo), [2](https://www.reddit.com/r/rhythmgames/comments/1byrjhb/is_geometry_dash_not_a_rhythm_game/)
+- What's wrong with Roblox? ( [1](https://www.youtube.com/watch?v=LPqI75qteWg) | [2](https://www.youtube.com/watch?v=_gXlauRB1EQ) | [3](https://www.youtube.com/watch?v=vTMF6xEiAaY) | [4](https://www.youtube.com/watch?v=n6PYj93SGxc) )
