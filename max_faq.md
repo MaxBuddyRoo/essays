@@ -27,6 +27,9 @@ From nominal leftists:
 - [Why should I vote for democrats?](https://socdoneleft.substack.com/p/democratic-states-are-substantially)
 - [Why shouldn't I vote third party?](https://socdoneleft.substack.com/p/third-parties-almost-always-lose)
 
+From both:
+- [Why do you like Zohran Mamdani?](https://www.youtube.com/watch?v=RjY_D_SN4wQ)
+
 # Misc
 - [Why Don't you like Autism Speaks?](https://medium.com/artfullyautistic/autism-speaks-is-the-largest-autism-organization-so-why-dont-autistic-people-like-it-f7b3bd30dd5c) [(collection of articles though many of them are deleted)](https://medium.com/@KirstenSchultz/a-roundup-of-posts-against-autism-speaks-5dbf7f8cfcc6) ([shorter version](https://x.com/Gluttony_Bishop/status/1657349629321592834))
 - [What's so good about Geometry Dash? / Why do you have 4k+ hours?](https://www.youtube.com/watch?v=L4bmmQLgv9s)
